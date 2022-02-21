@@ -2,7 +2,7 @@
 H5 Packaging is a quality driven company that has always been admired by clients for its custom packaging services. We offer elegant packaging boxes with affordable prices for our clients. We delight the packaging needs of organizations in all sizes and shapes inside and outside of the United States. You can trust us without any reluctance. We will never let you down
 What is special about your bath bomb boxes?
 If you're in the market for bath bomb boxes, there are a few things you should know before making your purchase. Not all bath bomb boxes are created equal – some are made with low-quality materials and construction, while others are made with higher quality standards. So, what is special about our bath bomb boxes? Here's looks at some of the features that make ours stand out: 
-Luxury Packaging  are made with high-quality materials and construction standards. - They feature a magnetic closure system to keep the bombs securely inside. - They have a clear, windowed lid so you can see the bombs inside. - They are lightweight and easy to transport. We hope this gives you a good overview of what
+<a href="https://h5packaging.com/ ">Luxury Packaging</a> are made with high-quality materials and construction standards. - They feature a magnetic closure system to keep the bombs securely inside. - They have a clear, windowed lid so you can see the bombs inside. - They are lightweight and easy to transport. We hope this gives you a good overview of what
 Common Material for Bath Bomb Boxes
 1. The two most common materials for bath bomb boxes wholesale are cardboard and plastic.
 2. Cardboard is biodegradable and can be recycled, while plastic is not biodegradable and cannot be recycled.
